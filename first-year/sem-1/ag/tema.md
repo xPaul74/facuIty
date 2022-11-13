@@ -1,0 +1,1 @@
+Tema algebra pana miercuri la 20:00
